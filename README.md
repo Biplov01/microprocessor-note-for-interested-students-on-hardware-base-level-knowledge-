@@ -1,0 +1,1 @@
+# microprocessor-note-for-interested-students-on-hardware-base-level-knowledge-
